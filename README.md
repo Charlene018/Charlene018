@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Charlene018
+- 👋 Hi, I’m CharleneBendaña
 - 👀 I’m interested in watching movies, listening music and exploring everything in this world
 - 🌱 I’m currently learning Bacher of Science in Information Technology
 - 💞️ I’m looking to collaborate on other user
